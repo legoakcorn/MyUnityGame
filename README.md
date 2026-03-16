@@ -7,52 +7,14 @@ You're so Portuguesse
 
 AAAAGGGGHHHHH
 
+Hi xD
 
+:(
 
+:)
 
+;|
 
+:D
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-If you see this, English or Spanish?
+:0
